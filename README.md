@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ND24680
+- 👀 I’m interested in Coding Redstone in Minecraft.
+- 🌱 I’m currently learning Minecraft Redstone.
+- 💞️ I’m looking to collaborate on YouTube.
+- 📫 How to reach me [phone number].
+- Simple but complex.
